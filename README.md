@@ -1,8 +1,13 @@
-"blow a kiss at the methane skies, see the rust through your playground eyes, we're all in love tonight"
----------------------------------------------------------------------------------------------------------
+**🌹~🎩**
 
-name : bridgette / bridge
+ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<img width="500" height="281" alt="download (1)" src="https://github.com/user-attachments/assets/904bf572-5ae5-4cdf-86a9-362dacbaa6b4" />
 
-Feel free to come sit with me on ponytown i'll talk to anyone really!
+﹌﹌﹌﹌﹌﹌﹌ *“Hey moon, please forget to fall down”* ﹌﹌﹌﹌﹌﹌﹌﹌
 
-C+h frealy i dont really care!!
+ ㅤㅤㅤㅤㅤㅤㅤㅤ**Bridge / Bridgette**
+
+ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  Int anyone freely! <3
+ 
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*she/her* or *they/them*
